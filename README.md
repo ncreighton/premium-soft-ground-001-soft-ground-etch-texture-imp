@@ -1,0 +1,2 @@
+# premium-soft-ground-001-soft-ground-etch-texture-imp
+Tired of scattered notes, reference images, and texture studies scattered across notebooks and apps? The Soft Ground Etch &amp; Texture Impress Craft Hub consolidates your entire printmaking workflow into one beautifully organized Notion workspace.  This template transforms how soft-ground etchers document techniques, track material experiments, and bu
